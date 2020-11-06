@@ -1,1 +1,1 @@
-JEesus on jumal. Tegelt pole.
+JEesus on jumal. Tegelt pole. IJOATjklfnökönfklasönlkfsaönföajnfasipfnafpöasmfaspofsaomfpmöklsmöf
