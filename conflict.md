@@ -1,1 +1,1 @@
-JEesus on jumal
+JEesus on jumal. Tegelt pole.
