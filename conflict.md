@@ -1,1 +1,1 @@
-JEesus on jumal
+JEesus on jumala poeg
